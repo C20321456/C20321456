@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @C20321456 (college Student .No)
-- Name: Michael Cooper
+- Name: Michael Cooper/Mykolas Kubilius
 - 
 - 👀 I’m interested in ...
 - just writing cool codes and reading codes that others make
